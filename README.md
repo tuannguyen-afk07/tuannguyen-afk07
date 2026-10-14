@@ -1,16 +1,19 @@
-## Hi there 👋
+Он не знал, что еще сказать, он слишком устал, дорогая.
 
-<!--
-**tuannguyen-afk07/tuannguyen-afk07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="540" height="310" alt="my soul is always with you" src="https://github.com/user-attachments/assets/ae15dd7c-5c2f-49d0-bf59-e87a024bd085" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+You're here.. aren't you..?
+
+
+please.. don't go.
+
+
+<img width="460" height="259" alt="the leo is all in the mind" src="https://github.com/user-attachments/assets/1a65c1f1-82b3-4844-848b-05687c9de1df" />
+
+
+
+<img width="500" height="231" alt="tải xuống (4)" src="https://github.com/user-attachments/assets/7c172700-764f-43e6-9863-713a47e2c227" />
+
+
+
